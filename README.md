@@ -1,6 +1,6 @@
 
 
-Privacy Policy for C Program Coding Quiz
+Privacy Policy for Apps published by PulseWawe
 Privacy Policy
 
 Last updated: March 16, 2024
